@@ -85,6 +85,10 @@ The sidequests specifically are immaculate. Having to help and comfort people wh
 
 I can't forget to mention the mask and time travel mechanics. Complete brilliance.
 
+### Why it Doesn't
+
+The two main criticism I have for *Majora's Mask* are lack of guidance and under-utitilized masks. You're on a time limit to beat the game, and a lack of guidance can make things feel really daunting and frustrating. As far as the masks go, some are very useful throughout the course of the entire playthrough while others are only useful for one or two moments. It's really limiting to the mechanic if so many of the masks only have one use case.
+
 ## 1. *The Legend of Zelda: Breath of the Wild*
 
 ![Breath of the Wild wide shot](/images/breath-of-the-wild.jpg)
